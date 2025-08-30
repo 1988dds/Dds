@@ -1,0 +1,1 @@
+No me lo puedo imaginar pero es que me da miedo ir al hospital porque no sé qué me va pasar en la vida porque me duele la barriga me da mucha rabia que no pueda estar en la casa de mis abuelos porque me duele el brazo me da mucha vergüenza que no puedo ir al médico porque me da mucha tristeza y 
